@@ -1,2 +1,0 @@
-# tugas-sekumlah-lagi
-tugas
